@@ -95,7 +95,7 @@ Just repsect
 ![](https://view-galaxy.s-ul.eu/5SnRlMTi)
 
 [Lanjay](https://mega.nz/file/AyAHFbDR#vgozkDaI4zAWtdeOr0PcqYOmIV6BL97qNPsJe3DIDaE)
-![](![image](https://github.com/fucjfucjfucj/Skins/assets/88988521/f8e81569-0100-46fe-acb2-dbf4d6cf5de6)
+(![image](https://github.com/fucjfucjfucj/Skins/assets/88988521/f8e81569-0100-46fe-acb2-dbf4d6cf5de6)
 )
 
 []()
