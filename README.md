@@ -1,8 +1,6 @@
 # Skins
 
-
-
-   [TKOab](https://mega.nz/file/9nYnSICQ#pWx_-XhxUUWcnAAcAHVRJNlZ3G4WvhNlR2tc9KAjuzo)
+[TKOab](https://mega.nz/file/9nYnSICQ#pWx_-XhxUUWcnAAcAHVRJNlZ3G4WvhNlR2tc9KAjuzo)
 ![](https://view-galaxy.s-ul.eu/FZDiZ2Gd)
 
 [Secret](https://mega.nz/file/FuBlmI6Z#L9dDRXVkXhlpUlD3Mts6kNAhp_7qoKa49c5Ci_ZXNbU)
@@ -66,7 +64,7 @@
 [GK](https://mega.nz/file/liRDzKiK#bbFDp0wgU-O9xDqyOJa5vXIa9XS2ynmxO0kkPsSoo80)
 ![](https://view-galaxy.s-ul.eu/8p69PU2Z)
 
-[Hardlife]()
+[HardlifeNH]()
 Just repsect
 
 [HowlWater 1](https://mega.nz/file/N7ZSDDQT#8xg28VB6dK-yjmp1-4Wtjl-ByUUB6MdzMg987wH4bmk)
