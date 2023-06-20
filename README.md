@@ -1,4 +1,4 @@
-![image](https://github.com/fucjfucjfucj/Skins/assets/88988521/046016b1-dc92-4f4c-8b19-fb4181850f92)# Skins
+# Skins
 
 
 
