@@ -46,7 +46,7 @@
 
 [Elysion (Hanabi Shira)](https://mega.nz/file/xzAiEDaA#cLwJLb2ppnTA_Eb1x4Frvhn8wa1XGoxYOLoYEo00xkk)
 
-[!(https://img.youtube.com/vi/sDpOkbuo7VI/0.jpg)](https://www.youtube.com/watch?v=sDpOkbuo7VI)
+[![asd](https://img.youtube.com/vi/sDpOkbuo7VI/0.jpg)](https://www.youtube.com/watch?v=sDpOkbuo7VI)
 
 []()
 ![]()
