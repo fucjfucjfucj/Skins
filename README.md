@@ -119,7 +119,7 @@ Just repsect
 ![](https://view-galaxy.s-ul.eu/XnBaxXUL)
 
 [rustbell 7](https://mega.nz/file/oqZkXIhB#MVXOQmgwxgkmmCezyLCBs505DLPnCbtG1jxuJ9uQN4I)
-![](https://view-galaxy.s-ul.eu/XnBaxXUL)
+![](https://view-galaxy.s-ul.eu/pcV2JxHX)
 
 [Trigger](https://mega.nz/file/NvZUnDaD#G9AkplpZ2abIak57s4DUS19F4SOmAhGNF_mvDmCG1JY)
 ![](https://view-galaxy.s-ul.eu/LxSH32Mr)
