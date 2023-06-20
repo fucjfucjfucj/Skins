@@ -79,7 +79,7 @@ Just repsect
 ![](https://view-galaxy.s-ul.eu/RsI9wHZx)
 
 [shene](https://mega.nz/file/JuAEVbYC#GNBLsbNUCAQ87nBjVsyhcCbCc4PWF1xzBitwXk5RIhw)
-![](https://view-galaxy.s-ul.eu/9VKtgxZN)
+![](https://view-galaxy.s-ul.eu/O6iKFaw4)
 
 [Karthy](https://mega.nz/file/BmIniB4J#RYUMOZnE7WZmvVCGpUnLFuwVxmiU6QTDrNud89Qb2Co)
 ![](https://view-galaxy.s-ul.eu/BUlyp9fM)
