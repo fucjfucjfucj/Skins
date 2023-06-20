@@ -96,7 +96,7 @@ Just repsect
 (![image](https://github.com/fucjfucjfucj/Skins/assets/88988521/f8e81569-0100-46fe-acb2-dbf4d6cf5de6)
 
 [Ming](https://mega.nz/file/diYSESpZ#QcZ8gKiEcEDbQp_pvagaCtt7fCtcc32zul-lxWu7Ibs)
-![image](https://github.com/fucjfucjfucj/Skins/assets/88988521/84fa5dcd-4e9b-4ec2-b010-e83cd41d2482)
+![](https://github.com/fucjfucjfucj/Skins/assets/88988521/84fa5dcd-4e9b-4ec2-b010-e83cd41d2482)
 
 [Paimon](https://mega.nz/file/46IEwbCT#0-wua9rQ-ktWcFfgFVkk58flOCtgZUq106Cg6rEUqOY)
 ![](https://view-galaxy.s-ul.eu/IMS2Zo0B)
