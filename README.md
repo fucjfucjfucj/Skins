@@ -58,6 +58,9 @@
 [Fusion](https://mega.nz/file/g24ESIrS#Ltpg4vrW2nh8IRmIU7NFqCXwD0qF-qTQ-35QJuK97bQ)
 ![](https://view-galaxy.s-ul.eu/Onqdm87a)
 
+[Fusion](https://mega.nz/file/ArYgyIYA#LY_rcqteCVgftBKhx2ZuI2Mxe2LyvhQbdz9F2GhUvTQ)
+![](https://view-galaxy.s-ul.eu/u0k43x58)
+
 [Sequence](https://mega.nz/file/JuBW0RCC#aK_op499JlUVsCUIrGh-0HcTJwSmETuovfsy14JNoHE)
 ![](https://view-galaxy.s-ul.eu/32av23Yy)
 
@@ -151,8 +154,6 @@ Just repsect
 [Yugen Ypan inspired](https://mega.nz/file/Nvx0GYKY#hMJ335-xK8TRtT5J27E4mHQdRc_C3rky5OfZXIvNaSM)
 ![](https://view-galaxy.s-ul.eu/uHSTvhPd)
 
-[Fusion](https://mega.nz/file/ArYgyIYA#LY_rcqteCVgftBKhx2ZuI2Mxe2LyvhQbdz9F2GhUvTQ)
-![](https://view-galaxy.s-ul.eu/u0k43x58)
 
 
 
