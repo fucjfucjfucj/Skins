@@ -1,4 +1,4 @@
-# Skins
+![image](https://github.com/fucjfucjfucj/Skins/assets/88988521/2c773998-7175-400a-a8ab-a061afcab21e)# Skins
 
 [TKOab](https://mega.nz/file/9nYnSICQ#pWx_-XhxUUWcnAAcAHVRJNlZ3G4WvhNlR2tc9KAjuzo)
 ![](https://view-galaxy.s-ul.eu/FZDiZ2Gd)
@@ -151,6 +151,8 @@ Just repsect
 [Yugen Ypan inspired](https://mega.nz/file/Nvx0GYKY#hMJ335-xK8TRtT5J27E4mHQdRc_C3rky5OfZXIvNaSM)
 ![](https://view-galaxy.s-ul.eu/uHSTvhPd)
 
+[Fusion](https://mega.nz/file/ArYgyIYA#LY_rcqteCVgftBKhx2ZuI2Mxe2LyvhQbdz9F2GhUvTQ)
+![](https://view-galaxy.s-ul.eu/u0k43x58)
 
 
 
