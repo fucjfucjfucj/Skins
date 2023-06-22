@@ -169,5 +169,8 @@ Just repsect
 [bahamete 2013](https://mega.nz/file/MjpBGR7K#-9ZuugT27Q1KwaT8zvCZscYASTAvfm5XpVwgYdHiJB0)
 ![](https://view-galaxy.s-ul.eu/4xXStn9N)
 
+[Susumu Hirasawa](https://mega.nz/file/J6BgxbyZ#i4JdNYkmrVgOgEmHpZDjTnQnF63251X1wMscUYIh1Gg)
+![](https://view-galaxy.s-ul.eu/jiDpSeUV)
+
 
 
