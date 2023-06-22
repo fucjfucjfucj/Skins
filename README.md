@@ -193,4 +193,10 @@ Just repsect
 [Малыш из Сен-Тропе](https://mega.nz/file/Z3B0BDSQ#gdZpCYsPgWPb-4prHyY5u__PiU0m-a45abchR2ApQIY)
 ![](https://view-galaxy.s-ul.eu/W2DaaVDR)
 
+[morgan Random copy](https://mega.nz/file/57pGXJBC#PovFtsSynrWadoS_cWbfiR5aV2JApZ7bu3mCDOojg2k)
+![](https://view-galaxy.s-ul.eu/uJKcWH7S)
+
+[Yellow Head Joe](https://mega.nz/file/Q6xDVA4J#78uHldnhTD8DAuB8CKOhlCA6WBQFaI48Ud9dmabw9Tw)
+![](https://view-galaxy.s-ul.eu/oQjvv4xc)
+
 
