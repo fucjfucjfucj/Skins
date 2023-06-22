@@ -200,7 +200,7 @@ Just repsect
 ![](https://view-galaxy.s-ul.eu/oQjvv4xc)
 
 [chitanda aosora](https://mega.nz/file/o74GkbiL#kVlMQcm7bsEChNjbgjiHSZPrkBFdaBCbyaM3vTpgfbc)
-![(https://youtu.be/9faG1z6Zr5w)](https://view-galaxy.s-ul.eu/R45Y4c3x)
+![https://youtu.be/9faG1z6Zr5w](https://view-galaxy.s-ul.eu/R45Y4c3x)
 ![]()
 
 
