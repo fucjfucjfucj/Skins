@@ -175,6 +175,14 @@ Just repsect
 [99](https://mega.nz/file/omZhFTxB#sWRbu5LNE5iy9n4uRUOExM7McVR6UeaLPn4-EfifllA)
 ![](https://view-galaxy.s-ul.eu/40UlayuR)
 
+[SemiControl](https://mega.nz/file/tmpnWBQZ#QaLBs6ngW2Froky1Pc3CPuw5QhXpT1mwy--AVlhALkc)
+![](https://view-galaxy.s-ul.eu/dY1lJpOk)
+
+[GlowSpecial](https://mega.nz/file/luAmUYCR#E2clKj_ZplJRgTgQ3RiYLf1DkImU8WtZUhiMKe-3-wY)
+![](https://view-galaxy.s-ul.eu/Zjvzknmx)
+
+[Hidden Performance](https://mega.nz/file/UroAnC6B#h63NFBvXHYArcI09dwAJe3LRqqxutrxt9CR4aEplSoQ)
+![](https://view-galaxy.s-ul.eu/5sOJzZ7a)
 
 
 
