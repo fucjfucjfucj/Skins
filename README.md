@@ -214,3 +214,12 @@ Just repsect
 [bahamete 2](https://mega.nz/file/83YVwRyI#2IvD5Mz0n5ZYd8J5YFXMP69wboMRZ17rzpSeSSAqSLE)
 ![](https://view-galaxy.s-ul.eu/IWMRLVBR)
 
+[Default / Mapping](https://mega.nz/file/s3JUGQJS#-1nZm4mKF0z64XnGOtIbaNGFEUsdY64Pg4hRvrEFtPc)
+![](https://view-galaxy.s-ul.eu/ox6sLRGw)
+
+[fyre](https://mega.nz/file/ErZEXKiK#heMIbbIDwR2bHTWnj_c66aYm3EoaoS34fmukNWbqwW0)
+![](https://view-galaxy.s-ul.eu/56tIoUoA)
+
+[Gayzmcgee](https://mega.nz/file/s2ZSXYiB#XtM7Io8nRym_vANNkh9vmKPz-Fyq_6H0Fv4ZrHJlisw)
+![](https://view-galaxy.s-ul.eu/20LMT3SH)
+
