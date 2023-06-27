@@ -2,7 +2,7 @@
 
 Builds*
 *.debug
-*.debug.app
+*.debug.app DEBUG WHAT????
 Debug*.exe
 Debug*/Debug*.exe
 Debug*/Debug*\ Libs
