@@ -249,3 +249,6 @@ Just repsect
 
 [Gothic Misho Fever (2.0) CK](https://mega.nz/file/1mIliYiD#Bv3Q4OHyJYonwMukEIK3O2EBxaF-8JQE_Z1ebDJhAPI)
 ![](https://view-galaxy.s-ul.eu/Bay5ez2i)
+
+[dj Jisho](https://mega.nz/file/ZipWlYYA#Bk9MRt1ICnctcQfvKXXPukQlmQLuPVFuKOkYFWsWiMY)
+![](https://view-galaxy.s-ul.eu/0FZg7WNJ)
