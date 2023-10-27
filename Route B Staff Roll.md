@@ -73,7 +73,7 @@ If you want any of skins deleted IDRGAF
 [GK](https://mega.nz/file/liRDzKiK#bbFDp0wgU-O9xDqyOJa5vXIa9XS2ynmxO0kkPsSoo80)
 ![](https://view-galaxy.s-ul.eu/8p69PU2Z)
 
-[HardlifeNH]()
+[HardlifeNH](https://osu.ppy.sh/users/11009393)
 Just repsect
 
 [HowlWater 1](https://mega.nz/file/N7ZSDDQT#8xg28VB6dK-yjmp1-4Wtjl-ByUUB6MdzMg987wH4bmk)
