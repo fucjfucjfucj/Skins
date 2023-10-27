@@ -64,6 +64,9 @@ If you want any of skins deleted IDRGAF
 [Fusion](https://mega.nz/file/ArYgyIYA#LY_rcqteCVgftBKhx2ZuI2Mxe2LyvhQbdz9F2GhUvTQ)
 ![](https://view-galaxy.s-ul.eu/u0k43x58)
 
+[Fusion Rafis](https://mega.nz/file/MjpRmDRB#6Zwb2u4Bkro8_Yz3AqSbQQPnGz4OPrzrghvrkFrna7Y)
+![](https://view-galaxy.s-ul.eu/HRYAzs7P)
+
 [Sequence](https://mega.nz/file/JuBW0RCC#aK_op499JlUVsCUIrGh-0HcTJwSmETuovfsy14JNoHE)
 ![](https://view-galaxy.s-ul.eu/32av23Yy)
 
