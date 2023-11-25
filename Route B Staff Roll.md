@@ -328,8 +328,8 @@ Just repsect
 [TKO berlin](https://mega.nz/file/V7hDkRaC#sF2hXsOUEE4GyfTpqzK2RSMO8OLuuI6beBKzFhjLCeQ)
 ![](https://view-galaxy.s-ul.eu/coUBzsNL)
 
-[]()
-![]()
+[Trigger (Edit = M)](https://eupoquena.s-ul.eu/zZ17llzp)
+![](https://eupoquena.s-ul.eu/QV7AQXTS)
 
 []()
 ![]()
