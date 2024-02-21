@@ -333,8 +333,7 @@ Just repsect
 ![](https://eupoquena.s-ul.eu/QV7AQXTS)
 
 [Four Devas](https://mega.nz/file/ZyAERLrZ#-tmDmJTZiT75jINGSCTL3dHOgLA6wfantM4tujxPnjI)
-![](https://view-galaxy.s-ul.eu/mbI4GNjE)|![](https://view-galaxy.s-ul.eu/1ZNiiDlR)
-![](https://view-galaxy.s-ul.eu/Q85O5sCH)|![](https://view-galaxy.s-ul.eu/zP10YisJ)
+![](https://view-galaxy.s-ul.eu/mbI4GNjE) 
 
 []()
 ![]()
