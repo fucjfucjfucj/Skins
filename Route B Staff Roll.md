@@ -335,6 +335,9 @@ Just repsect
 [Four Devas](https://mega.nz/file/ZyAERLrZ#-tmDmJTZiT75jINGSCTL3dHOgLA6wfantM4tujxPnjI)
 ![](https://view-galaxy.s-ul.eu/lsopGIyg) 
 
+[Four Devas 2.0](https://mega.nz/file/wyBnkbLL#Y7lwy9jw4sXD9cnAiw1OLf1TEow62Y1-CARU1LMuM9w)
+![](https://eupoquena.s-ul.eu/GHxVudgq)
+
 []()
 ![]()
 
