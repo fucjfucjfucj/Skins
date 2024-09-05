@@ -8,6 +8,9 @@ If you want any of skins deleted IDRGAF
 [Rafis 144](https://mega.nz/file/gjAWwQZb#vJxLCgDxL1gtVflWfKgz1ujGAIFy_o5TLOZ2dexjkH4)
 ![](https://eupoquena.s-ul.eu/VJjp4bao)
 
+[Rafis Extra stage](https://mega.nz/file/424A2BqZ#bPyd4RT36Q7kkhiRxsfqQnsgTUH2uiflxp99wH-P1jk)
+![](https://i.imgur.com/YtqTsSD.jpeg)
+
 [TKOab](https://mega.nz/file/9nYnSICQ#pWx_-XhxUUWcnAAcAHVRJNlZ3G4WvhNlR2tc9KAjuzo)
 [![](https://view-galaxy.s-ul.eu/FZDiZ2Gd)](https://mega.nz/file/9nYnSICQ#pWx_-XhxUUWcnAAcAHVRJNlZ3G4WvhNlR2tc9KAjuzo)
 
