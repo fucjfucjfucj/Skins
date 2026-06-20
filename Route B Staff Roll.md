@@ -1,6 +1,5 @@
-[Music Playlist](https://www.youtube.com/playlist?list=PL64TkeuWJZKqk-i2C8WBaIm2K-jnP6VoO) 
+Skins sorted by date added
 
-^^^^^^^^^^^^^^outdated!
 
 If you want any of skins deleted IDRGAF
 
